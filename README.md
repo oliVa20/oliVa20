@@ -1,0 +1,8 @@
+- 👋 Hi, I’m Olivia
+- 👀 I’m interested in reading， taking photoes and doing yoga
+- 🌱 I’m currently learning how to make pretty dresses by myself
+- 💞️ I’m looking to collaborate on teaching chinese and english
+- 📫 How to reach me: olivia_2024@foxmail.com
+- 😄 Pronouns: nannan
+- ⚡ Fun fact:nothing(execpt making money at home)
+-  If you are interested in China and Chinese culture, please let me know!
